@@ -1,6 +1,7 @@
 # Hasinah-Pokun.github.io
 
-# Bibi Hasinah Zehreen Pokun
+# Bibi Hasinah Zehreen Pokun         ![IMG_1470 (3)](https://github.com/Hasinah-Pokun/Hasinah-Pokun.github.io/assets/162398511/455bce3a-aafe-4603-a2b0-52ed66d41b16)
+
 
 ## Profile
 Motivated and responsible individual with experience in teaching, sales, and customer service roles. Strong communication, organizational, and interpersonal skills. Effective multi-tasker capable of working well in team settings. A quick learner committed to continuous self-improvement.
